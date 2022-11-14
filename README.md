@@ -1,0 +1,2 @@
+# SABAA-KOOF-
+📩yaada ❓Gaaffii Qabdan mara asirratti  Nuuf barreesaa.👇👇👇👇👇               👇👇👇👇👇👇👇👇👇👇👇                     @Abdureman_bot  Galata guddaa nu biraa qabdu👍 @) SABAA KOOF @) SABAA KOOF  @) SABAA KOOF
